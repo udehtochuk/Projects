@@ -6,7 +6,7 @@ Completed Client Projects
 4. www.unitysynergyhomesltd.com
 5. www.unityworldwidesynergyltd.com
 6. www.andachi.com
-7. www.fabconmodelschools.com
+7. www.fabconmodelschool.com
 8. www.wealthindubairealty.com
 9. www.andachientertainment.com
 10. www.victorchidiebereigboanugo.com
