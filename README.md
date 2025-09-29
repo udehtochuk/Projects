@@ -8,7 +8,7 @@ Completed Client Projects
 6. www.andachi.com
 7. www.fabconmodelschools.com
 8. www.wealthindubairealty.com
-9. www.andachientertinment.com
+9. www.andachientertainment.com
 10. www.victorchidiebereigboanugo.com
 11. www.pleromafoundation.org
 12. www.amazinggracehospital.com
