@@ -13,3 +13,8 @@ Completed Client Projects
 11. www.pleromafoundation.org
 12. www.amazinggracehospital.com
 13. www.numbersenergy.com
+14. hr.reulresources.org
+15. facility.reulresources.org
+16. food.eesfood.com
+17. www.store.andachi.com
+18. www.andachi.apartments
